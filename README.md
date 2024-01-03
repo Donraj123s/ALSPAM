@@ -5,7 +5,7 @@
 <p align="center"><a href="https://t.me/don_spambot"><img src="https://telegra.ph/file/e1ac446ecb50ef31d4168.jpg" width="400"></a></p>0
 
 
-> ⭐️ Thanks to everyone for using this op ™°‌ 🫧 ☆𝐌𝐎𝐎𝐍𝐘 𝐎𝐏☆. That is the greatest pleasure we have !
+> ⭐️ Thanks to everyone for using this op ™°‌ 🫧 ☆🇩‌𝙊𝙣☆. That is the greatest pleasure we have !
 
 
 # ᴅᴇᴘʟᴏʏᴍᴇɴᴛ
